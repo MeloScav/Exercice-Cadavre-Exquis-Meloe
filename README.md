@@ -3,3 +3,5 @@
 Ce petit bonhomme *magnifiquement* décomposé se promenait calmement dans **son** cimetière quand **SOUDAIN**...
 **BOUM** *"Oh! Non! La tueuse de monstre!!"* 
 Et voilà.. cette petite *monstruosité* est morte.
+
+Et à laisser ça place à un cookie!
