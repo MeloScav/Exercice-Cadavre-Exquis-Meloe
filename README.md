@@ -7,3 +7,5 @@ Et voilà.. cette petite *monstruosité* est morte.
 Mais c'est sans compter sur la suite de l'histoire.
 Arrivé au paradis des monstruosités, le petit bonhomme ricanna.
 Pas de chance Méloé la Tueuse de Monstres, mon histoire continue !
+
+Le monstre était tellement laid que tout le village en avait une peur bleue !
