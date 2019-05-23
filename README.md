@@ -10,3 +10,7 @@ Après de longue recherche il trouva un rituelle pour revenir parmis nous mais i
 
 Et à laisser ça place à un cookie!
 
+Mais c'est sans compter sur la suite de l'histoire.
+Arrivé au paradis des monstruosités, le petit bonhomme ricanna.
+Pas de chance Méloé la Tueuse de Monstres, mon histoire continue !
+
